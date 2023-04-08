@@ -1,2 +1,2 @@
-# hyperluminal-bday
-This is for hyperluminal's birthday!!!
+# hyperluminal-42
+This is for the hyperluminal only!!!
