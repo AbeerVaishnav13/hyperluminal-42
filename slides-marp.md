@@ -236,7 +236,7 @@ These malicious wormholes made as an attempt to escape, are now referred to as *
 
 # To be continued ...
 
-*Respear Hyperluminal **Amulya***, you started your existence this very day, and have had a lot of adventures in your time during and before our universe was ever born. You has protected us from many celestial calamities and kept the evil Hyperluminal locked away, for good. On behalf of all the Humans and quantum beings from Q-007:
+*Respear Hyperluminal **Amulya***, you started your existence this very day, and have had a lot of adventures in your time during and before our universe was ever born. You have protected us from many celestial calamities and kept the evil Hyperluminal locked away, for good. On behalf of all the Humans and quantum beings from Q-007:
 
 <!--_class: morse invert-->
 ### •–– &nbsp; • &nbsp; | &nbsp; •••• &nbsp; ––– &nbsp; •––• &nbsp; • &nbsp; | &nbsp; –•–– &nbsp; ––– &nbsp; ••– &nbsp; | &nbsp; •••• &nbsp; •– &nbsp; •••– &nbsp; • &nbsp; | &nbsp; •– &nbsp; –• &nbsp; | &nbsp; •– &nbsp; –– &nbsp; •– &nbsp; ––•• &nbsp; •• &nbsp; –• &nbsp; ––• &nbsp; | &nbsp; –•–– &nbsp; • &nbsp; •– &nbsp; •–• &nbsp; | &nbsp; •– &nbsp; •••• &nbsp; • &nbsp; •– &nbsp; –•• &nbsp; –•–•––
